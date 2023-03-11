@@ -1,1 +1,1 @@
-# rsschool-cv
+https://noruwka.github.io/rsschool-cv/cv
